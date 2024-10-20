@@ -1,12 +1,11 @@
-![](https://files.catbox.moe/0jkhk9.png)
-![](https://files.catbox.moe/0jkhk9.png)
+![](https://file.garden/ZSD6qQh9SRsD-dy3/dividers/pink%20laces%20bottom.png)
 
-  ㅤㅤㅤㅤㅤㅤㅤ  ![](https://cdn11.bigcommerce.com/s-89ffd/images/stencil/1280x1280/products/108475/417292/4580590128439_ee82d3787bc8740550a7e44c78f203d8__50396.1665459975.jpg?c=2?imbypass=on)
-  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤ                    ㅤ ㅤ ↑ literally my babies, i love them so much
+  ㅤㅤㅤㅤㅤㅤㅤ       ㅤ       ㅤ       ㅤ ![](https://animota.net/cdn/shop/products/nendoroid-swacchao-jujutsu-kaisen-nobara-kugisaki-514531.jpg?v=1650507018)
+  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤ                    ㅤ ㅤ ㅤㅤ                    ㅤ ㅤ      ㅤ       ㅤ       ㅤ      ㅤ       ㅤ       ㅤ       ㅤ  ↑ literally my baby, i love her so much
 
   ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤ   [rentry](https://rentry.co/itaafushikugi) [pronouns.cc](https://pronouns.cc/@itafushikugii) [atabook](https://itafushikugi.atabook.org/)ㅤ    
 
   ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤ ㅤ![](https://komarev.com/ghpvc/?username=itafushikugi&color=ff69b4&label=+cuties!!+🌸)
 
-![](https://files.catbox.moe/liwzm8.png)
-![](https://files.catbox.moe/liwzm8.png)ㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ        ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ     
+ㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ        ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ     
+![](https://file.garden/ZSD6qQh9SRsD-dy3/dividers/pink%20laces%20top.png)
