@@ -3,7 +3,7 @@
   ㅤㅤㅤㅤㅤㅤㅤ       ㅤ       ㅤ       ㅤ ![](https://animota.net/cdn/shop/products/nendoroid-swacchao-jujutsu-kaisen-nobara-kugisaki-514531.jpg?v=1650507018)
   ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤ                    ㅤ ㅤ ㅤㅤ                    ㅤ ㅤ      ㅤ       ㅤ       ㅤ      ㅤ       ㅤ       ㅤ       ㅤ  
 
-  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤ   [rentry](https://rentry.co/itaafushikugi) [pronouns.cc](https://pronouns.cc/@itafushikugii) [atabook](https://itafushikugi.atabook.org/)ㅤ    
+  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤ   [rentry](https://rentry.co/itaafushikugi) [pronouns.cc](https://pronouns.cc/@itafushikugii) [atabook](https://itafushikugi.atabook.org/) [patreon](https://www.patreon.com/c/plasmavessel/about)ㅤ    
 
   ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤ ㅤ![](https://komarev.com/ghpvc/?username=itafushikugi&color=ff69b4&label=+cuties!!+🌸)
 
